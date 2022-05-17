@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KarsaiKathy
+- 👀 I’m interested in QA
+- 🌱 I’m currently learning ISTQB
+- 💞️ I’m looking to collaborate on TESTING PROJECTS
+- 📫 How to reach me https://www.linkedin.com/in/karsai-ecaterina-925920235/
